@@ -4,7 +4,7 @@
 
 
 
-![Hình ảnh minh họa dự án](https://vubaosport.vn/wp-content/uploads/2024/03/88-2024-poster.png)
+![Hình ảnh minh họa dự án](https://static.fbshop.vn/wp-content/uploads/2024/01/Banner-website-6-min.webp)
 
 <p>&nbsp;</p>
 
